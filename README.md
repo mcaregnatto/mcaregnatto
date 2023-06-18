@@ -1,4 +1,4 @@
-Mechanical Engineer | Enthusiastic about Technology | Problem Solver
+Mechanical Engineer | Enthusiastic about Technology
 
 Hello there! 👋 I'm Mateus, a Mechanical Engineer with a strong passion for technology. I'm constantly studying Software Engineering to enhance my problem-solving skills and find innovative solutions to the challenges I encounter in my daily life.
 
